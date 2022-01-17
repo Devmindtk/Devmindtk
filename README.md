@@ -14,8 +14,6 @@
 
 - 📫 How to reach me **tanwikumari22@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1-gmxioELWLzGHGlHm9mR0nRn3PHtF1Da/view?usp=sharing](https://drive.google.com/file/d/1-gmxioELWLzGHGlHm9mR0nRn3PHtF1Da/view?usp=sharing)
-
 - ⚡ Fun fact **I think I can learn every trending technology.**
 
 ### Blogs posts
