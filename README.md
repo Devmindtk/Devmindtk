@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **tanwikumari22@gmail.com**
 
-- ⚡ Fun fact **I think I can learn every trending technology.**
+- ⚡ Fun fact **I think I can learn every new technology.**
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
